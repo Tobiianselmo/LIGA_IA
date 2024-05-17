@@ -1,2 +1,0 @@
-hola tobi
-hola mati
